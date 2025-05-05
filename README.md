@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning to code as both a hobby and a potential career.
 - 🌱 I’m currently learning HTML/CSS and Ruby.
 - 💞️ I’m looking to collaborate on any HTML or Ruby projects.
-- 📫 How to reach me: You can email me at anorton11037@gmail.com.
+- 📫 How to reach me: There is no way to contact me now, but I will edit this later.
 - 😄 Pronouns: Any
 - ⚡ Fun fact: I own three cats!
 
